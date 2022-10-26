@@ -1,0 +1,1 @@
+# cstd2223ki48kovalyshynmy10
